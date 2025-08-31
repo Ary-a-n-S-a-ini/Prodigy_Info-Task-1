@@ -1,1 +1,1 @@
-# Prodigy_Info-Task-1
+# Prodigy_Info-Tasks
